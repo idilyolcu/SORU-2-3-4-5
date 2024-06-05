@@ -1,2 +1,0 @@
-# TARIK Gokduman
- .
